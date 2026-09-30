@@ -1,2 +1,2 @@
-# ridham8539.github.io
+ramilaoza39-star.github.il
 Ai business solver - GEO project 
